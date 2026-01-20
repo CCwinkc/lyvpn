@@ -1,5 +1,5 @@
 ## 🔗凌云加速器 最新地址
-- 导航页：https://nav.zwaaa.app
+- 导航页：https://凌云加速器.vip
 - 主站：https://ly.zwaaa.app
 
 ## 📢 实时更新渠道
