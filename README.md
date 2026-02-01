@@ -1,6 +1,6 @@
 ## 🔗凌云加速器 最新地址
 - 导航页：https://nav.lingyun.run
-- 主站：https://ly.zwaaa.app
+- 主站：https://ly.ccwink.art
 
 ## 📢 实时更新渠道
 - Telegram 频道：https://t.me/zwaaa2
